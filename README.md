@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @reagan505
-- 👀 I’m interested in leaning wed world wid
+- 👀 I’m interested in leaning wed world wide
 - 🌱 I’m currently learning in kenya
 - 💞️ I’m looking to collaborate on working with many creating big projects
 - 📫 How to reach me @reagangachnja6gmail.com
